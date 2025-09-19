@@ -31,7 +31,7 @@
 ---
 
 ## 📫 Contáctame
-- [LinkedIn](#)  
+- [https://www.linkedin.com/in/daniela-mateo-855b2123b?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app](#)  
 - [Correo](mailto:tuemail@dominio.com)  
 
 ---
